@@ -1,4 +1,10 @@
 # jgjgjgyyj
 
 
+como jogar
+
+
+
+referências
+
 
